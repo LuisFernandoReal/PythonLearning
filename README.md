@@ -2,4 +2,4 @@
 aprendizaje de python desde cero
 ya tenia cuenta aqui XD no me acuerdo que hice aqui 
 pero segun tenia una maquina virtual en una pagina parecida
-pero creo que esra no es XD
+pero creo que esta no es XD
